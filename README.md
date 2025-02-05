@@ -1,1 +1,1 @@
-### Everything you need is in folders ^^__^^
+### Everything you need is in folder ^^__^^
